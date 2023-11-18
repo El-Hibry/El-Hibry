@@ -4,6 +4,14 @@
  * I'm open For Collaboration and Intership .
  * Thanks for reading
  * Check my social medias link to reach me
+Linkedin
+  * www.linkedin.com/in/mustapha-olawale-6020b8248
+Facebook
+  * https://www.facebook.com/mustapha.abdulyekeen.90
+X
+  * https://x.com/Abdulyekeenmus1
+Whatsapp
+ * +2348083318004
 <!--
 **El-Hibry/El-Hibry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
