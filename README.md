@@ -5,10 +5,9 @@
  * Thanks for reading
  * Check my social medias link to reach me
 Linkedin
-
   * www.linkedin.com/in/mustapha-olawale-6020b8248
-Facebook
 
+Facebook
   * https://www.facebook.com/mustapha.abdulyekeen.90
 
 X
