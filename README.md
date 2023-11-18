@@ -3,6 +3,7 @@
  * I'm a data Enthusiast And currently Ongoing Training To Become a Data Scientist on DataCamp
  * I'm open For Collaboration and Intership .
  * Thanks for reading
+ * Check my social media link to reach me
 <!--
 **El-Hibry/El-Hibry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
